@@ -4,6 +4,7 @@
 
 
 ***THOR ODINSON***
+
 *The hammer-wielding god associated with thunder, lightning, storms, oak trees, strength.*
 ---
 **Character Biography:**
